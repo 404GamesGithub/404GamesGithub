@@ -3,5 +3,3 @@
 - 🌱 I’m currently learning scool
 - 🤔 I’m looking for help with making my gsite
 - 💬 Ask me about anything
-- 📫 How to reach me: NeonFN69 (Discord)
-- 😄 Pronouns: He/Him
